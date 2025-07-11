@@ -3,6 +3,7 @@ HP Z VR; HP Reverb, Pico, Steam VR, Enklu Cloud, Microsoft HoloLens, Vicon’s E
 providing maintenance to proprietary VR technologies provided by startup companies across San Francisco such as The Void VR, BlackBox VR, Gameday VR, Sandbox VR, Oculus VR, Enklu Inc, Niantic, and Facebook/Meta.
 
 It was a career that had me fired the first day I moved into my apartment and later evicted on my birthday.
+
 All while navigating instances of DARVO and Munchausen by Proxy from direct family members and close peers.
 
 Now, I'm a new student at Santa Rosa Junior College, and a returning member to The Church of Jesus Christ of Latter Day Saints. I'm prepping for their debut artificial intelligence course, BAD 81, after having met DeepLearning.AI's CEO, Andrew Ng, as a result of another completeing another debut AI class in Oakland, CA; CIS 96F. As well as dropping a Starbucks barista role during a ransomeware attack that froze the company's Blue Yonder payment systems at their Lake Park store, and exiting a non-profit organization; Poor Magazine.
