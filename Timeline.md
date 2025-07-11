@@ -6,6 +6,6 @@ providing maintenance to proprietary VR technologies provided by startup compani
 
 It was a career that had me fired the first day I moved into my apartment and later evicted on my birthday.
 
-Now, I'm a new student at Santa Rosa Junior College, and a returning member to The Church of Jesus Christ of Latter Day Saints. I'm prepping for their debut artificial intelligence course, BAD 81, after having met DeepLearning.AI's CEO, Andrew Ng, as a result of another completeing another AI class in Oakland, CA; CIS 96F.
+Now, I'm a new student at Santa Rosa Junior College, and a returning member to The Church of Jesus Christ of Latter Day Saints. I'm prepping for their debut artificial intelligence course, BAD 81, after having met DeepLearning.AI's CEO, Andrew Ng, as a result of another completeing another debut AI class in Oakland, CA; CIS 96F.
 
-All while dropping a Starbucks barista role during a ransomeware attack that froze the company's Blue Yonder payment systems at their Lake Park store.
+All while dropping a Starbucks barista role during a ransomeware attack that froze the company's Blue Yonder payment systems at their Lake Park store, and exiting a non-profit organization; Poor Magazine.
