@@ -1,8 +1,7 @@
 
 Summer 2025
 
-Before SRJC, I was of testing, troubleshooting, advertising, and selling VR/AR hardware and software (Oculus, HTC, Index,
-HP Z VR; HP Reverb, Pico, Steam VR, Enklu Cloud, Microsoft HoloLens, Vicon’s Evoke etc.) while repairing and
+Before SRJC, I was of testing, troubleshooting, advertising, and selling VR/AR hardware and software while repairing and
 providing maintenance to proprietary VR technologies provided by startup companies across San Francisco such as The Void VR, BlackBox VR, Gameday VR, Sandbox VR, Oculus VR, Enklu Inc, Niantic, and Facebook/Meta.
 
 It was a career that had me fired the first day I moved into my apartment and later evicted on my birthday.
