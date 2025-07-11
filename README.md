@@ -12,7 +12,7 @@
 
 [Former Employment] Mercy Center Burlingame via Robert Half
 
-[Current Employment] Twist SF
+[Current Employment] SRJC Financial Aid Office (Pending)
 
 
 [Completed AI Research]
