@@ -13,6 +13,6 @@ Now, I'm a new student at Santa Rosa Junior College, and a returning member to T
 
 Currently in the process to interview for a job with the Financial Aid Office.
 
-Update tomorrow.
+Update on any anomalies tomorrow.
 
 07/11/25
