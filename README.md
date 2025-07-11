@@ -1,6 +1,6 @@
 
 
-[Name] Luis Soberanis-Pacheco
+[Name] Luis Angel Soberanis-Pacheco
 
 [DOB] 05-14-2001 (24 Years Old)
 
@@ -8,11 +8,11 @@
 
 [Contact] 510 328-6906
 
-[LDS Wards] (2009-2025): San Leandro 2nd, Oakland 6th, & Bennet Valley (Aaronic Priesthood)
+[LDS Wards] (2009-2025): San Leandro 2nd, Oakland 6th, & Bennet Valley
 
 [Former Employment] Mercy Center Burlingame via Robert Half
 
-[Current Employment] SRJC Financial Aid Office (Pending)
+[Current Employment] SRJC Financial Aid Office? (Pending)
 
 
 [Completed AI Research]
