@@ -325,9 +325,11 @@ He was let go a week later as a result of repeated ‘no-call no-shows’ and ta
 
 Shortly after, he successfully allocated the rest of his findings into a 9GB dossier, executive summary, and intelligence report.
 
+Using previous methods that were implented to find Andrew Ng, he locates an employee from Niantic during their 3D scan in Pier 39.
+
+There, he meets Oliver Johnston, who offers him a temporary contract from Adecco to work for Niantic.
+
 Months later, revisiting Pam at Sandbox VR’s San Francisco location to talk more about San Mateo, Pam was let go from the company.
-
-
 
 Summer 2025
 
@@ -341,3 +343,4 @@ All while navigating through instances of DARVO and Munchausen by Proxy from dir
 Now, I'm a new student at Santa Rosa Junior College, and a returning member to The Church of Jesus Christ of Latter Day Saints. 
 
 I'm prepping for their debut artificial intelligence course, BAD 81, after having met DeepLearning.AI's CEO, Andrew Ng, as a result of completeing another debut AI class in Oakland, CA; CIS 96F. As well as dropping a Starbucks barista role during a ransomeware attack that froze the company's Blue Yonder payment systems at their Lake Park store, and exiting from a non-profit organization; Poor Magazine.
+30040482-878313233
