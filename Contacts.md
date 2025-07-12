@@ -37,8 +37,10 @@
     [Sandbox VR] (2021) Retail Associate (Interviewed and employed by Carlos Duenas)
     
     [Enklu Inc] (2022) Contractor (Interviewd and employed by Beth Cloutier)
-    
+        
     [Trade Wizards] (2024) Content & Copywriter (Employed by Howard Lee & Kai Chen)
+    
+    (Niantic via Adecco) (2025) Photon Operator (Interviewed and employed by Oliver Johnston)
     
     [Stanford University] (2024) Medical Research Participant
     
