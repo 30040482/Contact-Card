@@ -226,11 +226,11 @@ It later helped him in locating DeepLearning.AI’s CEO, Andrew Ng, during a liv
 
 A semester later, The Peralta Community College District stopped issuing student Chromebooks for permanent or at-home use.
 
-That same September is when he failed an interview for a treasurer position within the Associated Students of Laney College after consulting with former members of DeAuth Network and The 4337 Mafia at an office within the International Technical University in San Jose.
+That same September is when he failed an interview for a treasurer position within the Associated Students of Laney College after consulting with former members of DeAuth Network and The 4337 Mafia during a conference within the International Technical University in San Jose. The initial invite was offered by two former members of DeAuth Network, Howard Lee and Kai Chen, who were also his former classmates at Oakland Charter High School.
 
 After successfully joining ASLC 2023-24 as a student senator, he climbed his way to student treasurer and eventually interviewed for student vice president after the removal of student body president, Camila Yurivilca.
 
-It was during his time as a student senator that he began to develop a proof of concept for a financial deficit recovery system developed in-house by the students and staff of the Peralta Community College District called, “The Peralta Project”, as well as regularly attending zoom meetings for an unpaid content and copywriting role for a chinese crypto startup called Trade Wizards. This role was offered by former members of DeAuth Network, Howard Lee and Kai Chen, who were also his former classmates at Oakland Charter High School. 
+It was during his time as a student senator that he began to develop a proof of concept for a financial deficit recovery system developed in-house by the students and staff of the Peralta Community College District called, “The Peralta Project”, as well as regularly attending zoom meetings for an unpaid content and copywriting role for a chinese crypto startup called Trade Wizards. This role was offered by the same former members of DeAuth Network.
 
 Howard would regularly encourage him to pursue the role as a means to avoid “bullsh-- work” at Laney College.
 
