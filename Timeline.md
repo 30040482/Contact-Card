@@ -165,7 +165,7 @@ The representative did not receive a serious reply.
 
 He was later blocked by the representative.
 
-However, he faced many claims from his parents and sister that he was never working and wasn’t attending school at all. Convinced that he was photoshopping his class schedule and student ID to avoid paying rent to his parents, his father asked his brother Muteado to contact Tiny Grey-Garcia, the president of a non-profit organization called Poor Magazine, to personally verify them herself. Confirming their authenticity, he was able to continue studying at home while attempting to transfer to UC Berkeley.
+However, he faced many claims from his parents and sister that he was never working and wasn’t attending school at all. Convinced that he was photoshopping his class schedule and student ID to avoid paying rent to his parents, his father asked his brother Miguel to contact Tiny Grey-Garcia, the president of a non-profit organization called Poor Magazine, to personally verify them herself. Confirming their authenticity, he was able to continue studying at home while attempting to transfer to UC Berkeley.
 
 On a Sunday evening in June, he found himself stuck on a BART station platform. The coliseum station was temporarily shut down as a result of a police stand-off that resulted in officers deploying SWAT vehicles, helicopters, K-9 units, gas canisters, and police drones on a suspect that wouldn’t exit his car.
 
@@ -187,18 +187,20 @@ Then in mid-August, he was told by his mother to move out on August 30th, 2024 a
 
 As a result of calling his parents’ bishop from The Church of Jesus Christ of Latter-day Saints (Mormons), and scheduling a family meeting that upcoming Sunday, his father threw his items into the street weeks before the start of his fall semester.
 
-Calling his uncle for help, Muteado insisted that, “This is what happens when someone doesn’t appreciate what someone has at home. It’s best to learn from the consequences of their actions.”
+Calling his uncle, Miguel Soberanis ( "Muteado Silenciado" ) for help, Miguel insisted that, “This is what happens when someone doesn’t appreciate what someone has at home. It’s best to learn from the consequences of their actions.”
 After moving his things back into the overdue apartment unit, he was introduced to the organization, Poor Magazine.
 
-After which he began frequently visiting the LDS church’s Oakland 6th Ward as their bishop offered to buy him groceries while they waited for his parents to return the bishop's requests to meet together and sign his FAFSA application.
+After which he began frequently visiting the LDS church’s Oakland 6th Ward as their bishop offered to buy him groceries while they waited for his parents to return the bishop's requests to meet together and sign his FAFSA application. 
+
+Visits to the bishop's office were made a lot more frequently after spotting a framed image of Miguel in an LDS youth group during the 90s.
 
 His parents never returned his nor the bishop's calls.
 
 Over at Poor Magazine, he helped with assisting in weekly food drives while his uncle paid him $20 a week to edit and broadcast shows for their radio broadcasting. 
 
-The ordeal ended when his uncle Muteado claimed that he, “Owed money to the organization as a result of being paid too much.” 
+The ordeal ended when his uncle Miguel claimed that he, “Owed money to the organization as a result of being paid too much.” 
 
-Muteado later began to defer him from others he attempted to find work with as his uncle claimed that he was too unreliable and irresponsible to work anywhere else.
+Miguel later began to defer him from others he attempted to find work with as his uncle claimed that he was too unreliable and irresponsible to work anywhere else.
 
 Tiny always offered him a spot to live, and even provided dinners when his grandmother and uncle didn’t give him permission to eat or stay there overnight. On days that his grandmother did let him eat in her house, he was met with insults and often ridiculed for his physical attributes and financial situation. 
 
@@ -269,7 +271,7 @@ Despite constant advice not to, he used his pell grant to purchase an unregister
 
 Evicted on his birthday, he had officers from the Alameda County Sheriff's Office cooperate in assisting to carry his belongings from the apartment and into the vehicle. He later cut ties with anyone who ever supported him while attending Laney College.
 
-The car was stranded in Monterey’s Carmel Plaza and towed to Javier’s Auto Services as a result of a blown coolant line, warped gasket, fallen exhaust, missing battery tray, and an exposed relay after a failed route to the DeadCenter Film Festival in Oklahoma. After a two-week standby in Carmel for support, and an impound fee covered by his uncle Muteado, he was successfully transported to the festival in a van purchased and driven by an indie film director and another indie film producer he met at Poor Magazine while making a film based on the play, “Crushing Wheelchairs.” written by Tiny and Muteado.
+The car was stranded in Monterey’s Carmel Plaza and towed to Javier’s Auto Services as a result of a blown coolant line, warped gasket, fallen exhaust, missing battery tray, and an exposed relay after a failed route to the DeadCenter Film Festival in Oklahoma. After a two-week standby in Carmel for support, and an impound fee covered by his uncle Miguel, he was successfully transported to the festival in a van purchased and driven by an indie film director and another indie film producer he met at Poor Magazine while making a film based on the play, “Crushing Wheelchairs.” written by Tiny and Miguel.
 
 Returning to Carmel from Oklahoma, a AAA agent was dispatched by a church pastor and former US Army soldier from the Monterey United Methodist Church after being transported from Javier Auto Services. The car was finally handed off to a mechanic and former US Marine that continues to reside within the neighborhoods of Eastmont.
 
@@ -340,7 +342,8 @@ It was a career that had me fired the first day I moved into my apartment and la
 
 All while navigating through instances of DARVO and Munchausen by Proxy from direct family members and students.
 
-Now, I'm a new student at Santa Rosa Junior College, and a returning member to The Church of Jesus Christ of Latter Day Saints. 
+Now, I'm a new student at Santa Rosa Junior College, and a returning member to The Church of Jesus Christ of Latter Day Saints.
 
-I'm prepping for their debut artificial intelligence course, BAD 81, after having met DeepLearning.AI's CEO, Andrew Ng, as a result of completeing another debut AI class in Oakland, CA; CIS 96F. As well as dropping a Starbucks barista role during a ransomeware attack that froze the company's Blue Yonder payment systems at their Lake Park store, and exiting from a non-profit organization; Poor Magazine.
-30040482-878313233
+I was first raised in California's San Leandro 2nd Ward. Moving into that first apartment had me move into the Oakland 6th Ward on Temple Hill, and now moving into the dorms at Santa Rosa Junior College, I'm officially a member Santa Rosa's Bennet Valley Ward, as well as a regular attendant to Santa Rosa's Institute.
+
+I'm prepping for their debut artificial intelligence course, BAD 81, after having met DeepLearning.AI's CEO, Andrew Ng, as a result of completeing another debut AI class in Oakland, CA; CIS 96F. As well as dropping a Starbucks barista role during a ransomeware attack that froze the company's Blue Yonder payment systems at their Lake Park store, and while exiting from a non-profit organization; Poor Magazine.
