@@ -159,11 +159,14 @@ A little later, Supervisor Preston provides a statement to ABC7 News as a means 
 Researching for more details on the pilot program, he finds an excerpt regarding another member of SF’s Board of Supervisors in an article from KRON4 discussing a proposal that would allow law enforcement agencies to access public CCTV cameras in real-time and without a warrant.
 
 “Supervisor Ahsha Safai says he’s all for additional measures but says the Mayor is giving the Chief of Police too much leeway and not giving the board of supervisors enough oversight.”
+
 Weeks later, he finally began the spring semester at Laney College and accidentally began working on his first IP called, ‘veganwater.org’, a college homework assignment and practical joke that was unfortunately contacted on LinkedIn by a representative from Tetra Pak after creating a page for its domain.
 
 The representative did not receive a serious reply.
 
 He was later blocked by the representative.
+
+What was only a $20 domain, is now worth a whopping nine whole dollars.
 
 However, he faced many claims from his parents and sister that he was never working and wasn’t attending school at all. Convinced that he was photoshopping his class schedule and student ID to avoid paying rent to his parents, his father asked his brother Miguel to contact Tiny Grey-Garcia, the president of a non-profit organization called Poor Magazine, to personally verify them herself. Confirming their authenticity, he was able to continue studying at home while attempting to transfer to UC Berkeley.
 
