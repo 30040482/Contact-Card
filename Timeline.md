@@ -344,6 +344,6 @@ All while navigating through instances of DARVO and Munchausen by Proxy from dir
 
 Now, I'm a new student at Santa Rosa Junior College, and a returning member to The Church of Jesus Christ of Latter Day Saints.
 
-I was first raised in California's San Leandro 2nd Ward. Moving into that first apartment had me move into the Oakland 6th Ward on Temple Hill, and now moving into the dorms at Santa Rosa Junior College, I'm officially a member Santa Rosa's Bennet Valley Ward, as well as a regular attendant to Santa Rosa's Institute.
+I was first raised in California's San Leandro 2nd Ward. Moving into that first apartment had me move into the Oakland 6th Ward on Temple Hill, and now moving into the dorms at Santa Rosa Junior College, I'm officially a member to Santa Rosa's Bennet Valley Ward, as well as a regular attendant to Santa Rosa's Institute.
 
 I'm prepping for their debut artificial intelligence course, BAD 81, after having met DeepLearning.AI's CEO, Andrew Ng, as a result of completeing another debut AI class in Oakland, CA; CIS 96F. As well as dropping a Starbucks barista role during a ransomeware attack that froze the company's Blue Yonder payment systems at their Lake Park store, and while exiting from a non-profit organization; Poor Magazine.
