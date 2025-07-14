@@ -166,8 +166,6 @@ The representative did not receive a serious reply.
 
 He was later blocked by the representative.
 
-What was only a $20 domain, is now worth a li nine whole dollars.
-
 However, he faced many claims from his parents and sister that he was never working and wasn’t attending school at all. Convinced that he was photoshopping his class schedule and student ID to avoid paying rent to his parents, his father asked his brother Miguel to contact Tiny Grey-Garcia, the president of a non-profit organization called Poor Magazine, to personally verify them herself. Confirming their authenticity, he was able to continue studying at home while attempting to transfer to UC Berkeley.
 
 On a Sunday evening in June, he found himself stuck on a BART station platform. The coliseum station was temporarily shut down as a result of a police stand-off that resulted in officers deploying SWAT vehicles, helicopters, K-9 units, gas canisters, and police drones on a suspect that wouldn’t exit his car.
