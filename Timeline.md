@@ -234,7 +234,7 @@ It was during his time as a student senator that he began to develop a proof of 
 
 Howard would regularly encourage him to pursue the role as a means to avoid “bullsh-- work” at Laney College.
 
-A semester later, exited Trade Wizards and ceased all contact with Howard and Kai.
+A semester later, he exited Trade Wizards and ceased all contact with Howard and Kai.
 
 His proof of concept aimed to turn the Peralta Community College District's “2%” budgetary issue of September 2023 into student homework assignments, exam questions, and tutoring exercises for Laney College's artificial intelligence and business administration courses.
 
