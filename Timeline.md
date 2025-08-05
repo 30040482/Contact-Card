@@ -353,90 +353,103 @@ I'm prepping for their debut artificial intelligence course, BAD 81, after havin
 
 ###############################################################################
 
-    Questions for Dalia and Federico Soberanis
+Questions for Dalia and Federico Soberanis
+
+    Why did Dalia and Federico Soberanis really convert from the Catholic church at the Latter Day Saints?
     
+    At what age did Dalia and Federico Soberanis first arrive from the Oakland Stake?
+    
+    How long have Dalia and Federico Soberanis been members to the San Leandro 2nd Ward for?
+    
+    How long has Dalia and Federico Soberanis known Mauricio Torress from the Oakland Stake?
+    
+    How long has Dalia and Federico Soberanis known Bishop Canalez before he became Bishop?
+    
+    How did Dalia Soberanis find employment at Books and Taxes?
+    
+    How did Federico Soberanis find employment as a contractor?
     
 
+Questions for Priscilla Soberanis
 
-    Questions for Priscilla Soberanis
+    Where did The Church of Jesus Christ of Latter Day Saints assign Priscilla Soberanis to serve a mission?
 
-Where did The Church of Jesus Christ of Latter Day Saints assign Priscilla Soberanis to serve a mission?
+    How long was Priscilla Soberanis enrolled at BYU for?
 
-How long was Priscilla Soberanis enrolled at BYU for?
-
-Did Priscilla Soberanis receive a physical student ID while she attended BYU?
-
-
-
-    Questions for Alessandro Soberanis
-
-How much money did Alessandro Soberanis earn performing mariachi shows?
-
-Did Alessandro Soberanis ever receive his earnings from the mariachi shows?
-
-Did Alessandro Soberanis ever see an account or an allocated amount for him?
-
-Where did Alessandro Soberanis’ earnings from mariachi shows go?
-
-Did Luis Soberanis tell Alessandro to confront his mother about Alessandro’s earnings?
-
-Why was Luis Soberanis told by Dalia Pacheco that he was “poisoning his son’s brain”?
+    Did Priscilla Soberanis receive a physical student ID while she attended BYU?
 
 
 
-    Questions for Lisa Grey-Garcia and Miguel Soberanis 
+Questions for Alessandro Soberanis
 
-Why did Lisa Grey-Garcia and Miguel Soberanis meet with Luis Soberanis at his parents house? What happened as a result? 
+    How much money did Alessandro Soberanis earn performing mariachi shows?
 
-What is the exact reason Luis Soberanis was told to move out of his parents house?
+    Did Alessandro Soberanis ever receive his earnings from the mariachi shows?
 
-What was the exact date Luis was given to move out of Dalia and Federico’s house?
+    Did Alessandro Soberanis ever see an account or an allocated amount for him?
 
-Why was Luis Soberanis removed from his parents house prior to his move-out date?
+    Where did Alessandro Soberanis’ earnings from mariachi shows go?
 
-Was Luis Soberanis employed when he was removed from his parents house?
+    Did Luis Soberanis tell Alessandro to confront his mother about Alessandro’s earnings?
 
-Where was Priscilla Soberanis the day Luis Soberanis was removed from his parents house?
-
-What reason did Miguel Soberanis give to Luis Soberanis to never come home again?
+    Why was Luis Soberanis told by Dalia Pacheco that he was “poisoning his son’s brain”?
 
 
 
-    Questions for Poor Magazine
+Questions for Lisa Grey-Garcia and Miguel Soberanis 
 
-Why did Yuridia Soberanis and her daughter qualify for shelter at Poor Magazine?
+    Why did Lisa Grey-Garcia and Miguel Soberanis meet with Luis Soberanis at his parents house? What happened as a result? 
 
-How many other members of the Soberanis family sign Poor Magazine’s contract?
+    What is the exact reason Luis Soberanis was told to move out of his parents house?
 
-How many other members of the Soberanis family were staying at Poor Magazine?
+    What was the exact date Luis was given to move out of Dalia and Federico’s house?
 
-Did his grandmother refuse to let him stay in her home when he was without shelter?
+    Why was Luis Soberanis removed from his parents house prior to his move-out date?
 
-Why was Luis Soberanis not allowed to move in with Poor Magazine?
+    Was Luis Soberanis employed when he was removed from his parents house?
 
-Why does Poor Magazine advocate for sex work?
+    Where was Priscilla Soberanis the day Luis Soberanis was removed from his parents house?
 
-Why does Poor Magazine follow Banya SF on Instagram?
-
-How did Luis get invited to Banya SF?
-
-How often does Banya SF work with those from Twist SF?
-
-How did Luis end up working behind the bar at Twist SF?
+    What reason did Miguel Soberanis give to Luis Soberanis to never come home again?
 
 
-    Questions for Miguel Soberanis
 
-At what age did Miguel Soberanis become baptized in the Mormon church?
+Questions for Poor Magazine
 
-Why is Miguel Soberanis’ photo in the bishop’s office of the Oakland 6th Ward?
+    Why did Yuridia Soberanis and her daughter qualify for shelter at Poor Magazine?
 
-Why did Miguel’s name appear in church records that belonged to Luis?
+    How many other members of the Soberanis family sign Poor Magazine’s contract?
 
-How many church records that belonged to Luis Soberanis include Miguel Soberanis’ name?
+    How many other members of the Soberanis family were staying at Poor Magazine?
 
-What reason did Miguel Soberanis give to Luis Soberanis as a means to stop paying him for under the table labor at Poor Magazine? How much was he paid?
+    Did his grandmother refuse to let him stay in her home when he was without shelter?
 
-Was Luis Soberanis unemployed and at-risk of homelessness when he stopped getting paid?
+    Why was Luis Soberanis not allowed to move in with Poor Magazine?
 
-Did Miguel Soberanis at any point tell Luis Soberanis to avoid The Church of Jesus Christ of Latter Day Saints?
+    Why does Poor Magazine advocate for sex work?
+
+    Why does Poor Magazine follow Banya SF on Instagram?
+
+    How did Luis get invited to Banya SF?
+
+    How often does Banya SF work with those from Twist SF?
+
+    How did Luis end up working behind the bar at Twist SF?
+
+
+
+Questions for Miguel Soberanis
+
+    At what age did Miguel Soberanis become baptized in the Mormon church?
+
+    Why is Miguel Soberanis’ photo in the bishop’s office of the Oakland 6th Ward?
+
+    Why did Miguel’s name appear in church records that belonged to Luis?
+
+    How many church records that belonged to Luis Soberanis include Miguel Soberanis’ name?
+
+    What reason did Miguel Soberanis give to Luis Soberanis as a means to stop paying him for under the table labor at Poor Magazine? How much was he paid?
+
+    Was Luis Soberanis unemployed and at-risk of homelessness when he stopped getting paid?
+
+    Did Miguel Soberanis at any point tell Luis Soberanis to avoid The Church of Jesus Christ of Latter Day Saints?
