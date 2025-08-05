@@ -420,9 +420,11 @@ Questions for Poor Magazine
 
     Why did Yuridia Soberanis and her daughter qualify for shelter at Poor Magazine?
 
-    How many other members of the Soberanis family sign Poor Magazine’s contract?
+    How many other members of the Soberanis family signed Poor Magazine’s contract?
 
     How many other members of the Soberanis family were staying at Poor Magazine?
+    
+    Why does Federico's mother share proptery with Poor Magazine?
 
     Did his grandmother refuse to let him stay in her home when he was without shelter?
 
