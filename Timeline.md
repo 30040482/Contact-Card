@@ -353,10 +353,12 @@ I'm prepping for their debut artificial intelligence course, BAD 81, after havin
 
 ###############################################################################
 
+    Questions for Dalia and Federico Soberanis
+    
+    
 
 
-
-Questions for Priscilla Soberanis
+    Questions for Priscilla Soberanis
 
 Where did The Church of Jesus Christ of Latter Day Saints assign Priscilla Soberanis to serve a mission?
 
@@ -366,7 +368,7 @@ Did Priscilla Soberanis receive a physical student ID while she attended BYU?
 
 
 
-Questions for Alessandro Soberanis
+    Questions for Alessandro Soberanis
 
 How much money did Alessandro Soberanis earn performing mariachi shows?
 
@@ -382,7 +384,7 @@ Why was Luis Soberanis told by Dalia Pacheco that he was “poisoning his son’
 
 
 
-Questions for Lisa Grey-Garcia and Miguel Soberanis 
+    Questions for Lisa Grey-Garcia and Miguel Soberanis 
 
 Why did Lisa Grey-Garcia and Miguel Soberanis meet with Luis Soberanis at his parents house? What happened as a result? 
 
@@ -400,7 +402,7 @@ What reason did Miguel Soberanis give to Luis Soberanis to never come home again
 
 
 
-Questions for Poor Magazine
+    Questions for Poor Magazine
 
 Why did Yuridia Soberanis and her daughter qualify for shelter at Poor Magazine?
 
@@ -423,7 +425,7 @@ How often does Banya SF work with those from Twist SF?
 How did Luis end up working behind the bar at Twist SF?
 
 
-Questions for Miguel Soberanis
+    Questions for Miguel Soberanis
 
 At what age did Miguel Soberanis become baptized in the Mormon church?
 
