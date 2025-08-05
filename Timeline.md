@@ -424,9 +424,9 @@ Questions for Poor Magazine
 
     How many other members of the Soberanis family were staying at Poor Magazine?
     
-    Why does Federico's mother share proptery with Poor Magazine?
+    Why does Federico's mother (Luis' grandmother) share proptery with Poor Magazine?
 
-    Did his grandmother refuse to let him stay in her home when he was without shelter?
+    Did Luis Soberanis' grandmother refuse to let him stay in her home when he was without shelter?
 
     Why was Luis Soberanis not allowed to move in with Poor Magazine?
 
