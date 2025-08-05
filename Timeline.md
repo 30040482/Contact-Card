@@ -355,7 +355,9 @@ I'm prepping for their debut artificial intelligence course, BAD 81, after havin
 
 Questions for Dalia and Federico Soberanis
 
-    Why did Dalia and Federico Soberanis really convert from the Catholic church at the Latter Day Saints?
+    Why did Dalia and Federico Soberanis really convert from the Catholic church to the Latter Day Saints?
+    
+    How many other members of the Soberanis family fully converted?
     
     At what age did Dalia and Federico Soberanis first arrive from the Oakland Stake?
     
