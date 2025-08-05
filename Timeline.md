@@ -394,7 +394,7 @@ Questions for Alessandro Soberanis
 
     Did Luis Soberanis tell Alessandro to confront his mother about Alessandro’s earnings?
 
-    Why was Luis Soberanis told by Dalia Pacheco that he was “poisoning his son’s brain”?
+    Why was Luis Soberanis told by Dalia Pacheco that he was “poisoning my son’s brain”?
 
 
 
