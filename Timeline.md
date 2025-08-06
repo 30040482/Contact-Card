@@ -405,7 +405,7 @@ Questions for Poor Magazine
     Why does Poor Magazine follow Banya SF on Instagram?
     How did Luis get invited to Banya SF?
     How often does Banya SF work with those from Twist SF?
-    How did Luis end up working behind the bar at Twist SF?
+    How did Luis end up rescued by Twist SF?
 
 
 Questions for Miguel Soberanis
