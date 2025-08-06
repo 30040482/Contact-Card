@@ -452,7 +452,9 @@ Questions for Miguel Soberanis
 
     How many church records that belonged to Luis Soberanis include Miguel Soberanis’ name?
 
-    What reason did Miguel Soberanis give to Luis Soberanis as a means to stop paying him for under the table labor at Poor Magazine? How much was he paid?
+    What reason did Miguel Soberanis give to Luis Soberanis as a means to stop paying him for under the table labor at Poor Magazine?
+    
+    How much was Luis Soberanis paid under the table at Poor Magazine?
 
     Was Luis Soberanis unemployed and at-risk of homelessness when he stopped getting paid?
 
