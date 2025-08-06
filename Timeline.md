@@ -457,3 +457,34 @@ Questions for Miguel Soberanis
     Was Luis Soberanis unemployed and at-risk of homelessness when he stopped getting paid?
 
     Did Miguel Soberanis at any point tell Luis Soberanis to avoid The Church of Jesus Christ of Latter Day Saints?
+
+###############################################################################
+
+These families were identified to have played a role in Luis' inability to reintegrate into the church.
+As well as promoting labor exploitation and possible trafficking to Poor Magazine.
+
+    San Leandro 2nd Spanish Ward:
+    Mejia (Former Bishop - First Denied Help)
+    Canalez (Current Bishop - Actively Supports Soberanis)
+    Soberanis (Federico & Miguel - Labor exploitation to Poor Magazine)
+
+    Oakland 6th provided the most help after Miguel warned Luis not to go.
+    Ruiz (Current Bishop - Assisted With Food)
+    Browning (Stake President - Help locate the Santa Rosa Bennet Valley Ward)
+    Maughn (Institute Teacher - Helped introduce other members of YSA)
+    Sullivan (Current Bishop - Helped to locate member number and patriarchal blessing)
+
+What happened in Oakland 6th & Bennett Valley that couldn't have occurred in San Leandro 2nd sooner?
+
+Canalez is the current bishop of the San Leandro 2nd Spanish Ward.
+Was ordained bishop while these events transpired: 
+
+https://github.com/30040482/Contact-Card/blob/main/Timeline.md?fbclid=IwY2xjawL_qThleHRuA2FlbQIxMAABHo-CoT1ir-o2JpKyS2ufurY9rljbPAp6XFYQLZ6dvWw-YpOAVYS3oRjh2QD2_aem_fu3Z0cZiIFV4h-sqtNI4hQ
+
+How did Canalez qualify if he was actively associated with labor traffickers?
+
+    Reference with information from witnesses:
+    Stake President Browning (Oakland)
+    Bishop Ruiz (Oakland)
+    Bishop Sullivan (Bennett Valley Ward)
+    Brother Maugh (Santa Rosa Institute)
