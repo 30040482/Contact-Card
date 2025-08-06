@@ -406,7 +406,7 @@ Questions for Poor Magazine
     How did Luis get invited to Banya SF?
     How often does Banya SF work with those from Twist SF?
     How did Luis get rescued by the bosses of Twist SF?
-    What stood out to the bosses upon meeting Luis?
+    What stood out to the Russian bosses upon meeting Luis?
 
 
 Questions for Miguel Soberanis
