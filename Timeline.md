@@ -357,7 +357,7 @@ Questions for Dalia and Federico Soberanis
 
     Why did Dalia and Federico Soberanis really convert from the Catholic church to the Latter Day Saints?
     
-    How many other members of the Soberanis family fully converted?
+    How many other members of the Soberanis family did Dalia and Federico convert ?
     
     At what age did Dalia and Federico Soberanis first arrive from the Oakland Stake?
     
