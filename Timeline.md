@@ -484,6 +484,8 @@ Was ordained bishop while these events transpired:
 https://github.com/30040482/Contact-Card/blob/main/Timeline.md?fbclid=IwY2xjawL_qThleHRuA2FlbQIxMAABHo-CoT1ir-o2JpKyS2ufurY9rljbPAp6XFYQLZ6dvWw-YpOAVYS3oRjh2QD2_aem_fu3Z0cZiIFV4h-sqtNI4hQ
 
 How did Canalez qualify if he was actively associated with labor traffickers?
+How is someone called to become a Bishop?
+Who ordains the new Bishop?
 
     Reference with information from witnesses:
     Stake President Browning (Oakland)
