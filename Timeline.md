@@ -406,7 +406,7 @@ Questions for Poor Magazine
     How did Luis get invited to Banya SF?
     How often does Banya SF work with those from Twist SF?
     How did Luis get rescued by the bosses of Twist SF?
-    Why is Luis not allergic to cats?
+    What stood out to the bosses upon meeting them?
 
 
 Questions for Miguel Soberanis
