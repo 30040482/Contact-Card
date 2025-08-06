@@ -356,108 +356,67 @@ I'm prepping for their debut artificial intelligence course, BAD 81, after havin
 Questions for Dalia and Federico Soberanis
 
     Why did Dalia and Federico Soberanis really convert from the Catholic church to the Latter Day Saints?
-    
     How many other members of the Soberanis family did Dalia and Federico convert ?
-    
     At what age did Dalia and Federico Soberanis first arrive from the Oakland Stake?
-    
     How long have Dalia and Federico Soberanis been members to the San Leandro 2nd Ward for?
-    
     How long has Dalia and Federico Soberanis known Mauricio Torress from the Oakland Stake?
-    
     How long has Dalia and Federico Soberanis known Bishop Canalez before he became Bishop?
-    
     How did Dalia Soberanis find employment at Books and Taxes?
-    
     How did Federico Soberanis find employment as a contractor?
     
 
 Questions for Priscilla Soberanis
 
     Where did The Church of Jesus Christ of Latter Day Saints assign Priscilla Soberanis to serve a mission?
-
     How long was Priscilla Soberanis enrolled at BYU for?
-
     Did Priscilla Soberanis receive a physical student ID while she attended BYU?
-
 
 
 Questions for Alessandro Soberanis
 
     How much money did Alessandro Soberanis earn performing mariachi shows?
-
     Did Alessandro Soberanis ever receive his earnings from the mariachi shows?
-
     Did Alessandro Soberanis ever see an account or an allocated amount for him?
-
     Where did Alessandro Soberanis’ earnings from mariachi shows go?
-
     Did Luis Soberanis tell Alessandro to confront his mother about Alessandro’s earnings?
-
     Why was Luis Soberanis told by Dalia Pacheco that he was “poisoning my son’s brain”?
-
 
 
 Questions for Lisa Grey-Garcia and Miguel Soberanis 
 
     Why did Lisa Grey-Garcia and Miguel Soberanis meet with Luis Soberanis at his parents house? What happened as a result? 
-
     What is the exact reason Luis Soberanis was told to move out of his parents house?
-
     What was the exact date Luis was given to move out of Dalia and Federico’s house?
-
     Why was Luis Soberanis removed from his parents house prior to his move-out date?
-
     Was Luis Soberanis employed when he was removed from his parents house?
-
     Where was Priscilla Soberanis the day Luis Soberanis was removed from his parents house?
-
     What reason did Miguel Soberanis give to Luis Soberanis to never come home again?
-
 
 
 Questions for Poor Magazine
 
     Why did Yuridia Soberanis and her daughter qualify for shelter at Poor Magazine?
-
     How many other members of the Soberanis family signed Poor Magazine’s contract?
-
     How many other members of the Soberanis family were staying at Poor Magazine?
-    
     Why does Federico's mother (Luis' grandmother) share proptery with Poor Magazine?
-
     Did Luis Soberanis' grandmother refuse to let him stay in her home when he was without shelter?
-
     Why was Luis Soberanis not allowed to move in with Poor Magazine?
-
     Why does Poor Magazine advocate for sex work?
-
     Why does Poor Magazine follow Banya SF on Instagram?
-
     How did Luis get invited to Banya SF?
-
     How often does Banya SF work with those from Twist SF?
-
     How did Luis end up working behind the bar at Twist SF?
-
 
 
 Questions for Miguel Soberanis
 
     At what age did Miguel Soberanis become baptized in the Mormon church?
-
     Why is Miguel Soberanis’ photo in the bishop’s office of the Oakland 6th Ward?
-
     Why did Miguel’s name appear in church records that belonged to Luis Soberanis?
-
     How many church records that belonged to Luis Soberanis include Miguel Soberanis’ name?
-
     What reason did Miguel Soberanis give to Luis Soberanis as a means to stop paying him for under the table labor at Poor Magazine?
-    
     How much was Luis Soberanis paid under the table at Poor Magazine?
-
     Was Luis Soberanis unemployed and at-risk of homelessness when he stopped getting paid?
-
     Did Miguel Soberanis at any point tell Luis Soberanis to avoid The Church of Jesus Christ of Latter Day Saints?
 
 ###############################################################################
