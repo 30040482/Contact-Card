@@ -448,7 +448,7 @@ Questions for Miguel Soberanis
 
     Why is Miguel Soberanis’ photo in the bishop’s office of the Oakland 6th Ward?
 
-    Why did Miguel’s name appear in church records that belonged to Luis?
+    Why did Miguel’s name appear in church records that belonged to Luis Soberanis?
 
     How many church records that belonged to Luis Soberanis include Miguel Soberanis’ name?
 
