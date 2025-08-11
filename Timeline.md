@@ -333,18 +333,3 @@ Using previous methods that were implented to find Andrew Ng, he locates an empl
 There, he meets Oliver Johnston, who offers him a temporary contract from Adecco to work for Niantic.
 
 Months later, revisiting Pam at Sandbox VR’s San Francisco location to talk more about San Mateo, Pam was let go from the company.
-
-Summer 2025
-
-Before SRJC, I was of testing, troubleshooting, advertising, and selling VR/AR hardware and software while repairing and
-providing maintenance to proprietary VR technologies provided by startup companies across San Francisco such as The Void VR, BlackBox VR, Gameday VR, Sandbox VR, Oculus VR, Enklu Inc, Niantic, and Facebook/Meta.
-
-It was a career that had me fired the first day I moved into my apartment and later evicted on my birthday.
-
-All while navigating through instances of DARVO and Munchausen by Proxy from direct family members and students.
-
-Now, I'm a student at Santa Rosa Junior College, and a member to The Church of Jesus Christ of Latter Day Saints.
-
-I was first raised in California's San Leandro 2nd Ward. Moving into that first apartment had me move into the Oakland 6th Ward on Temple Hill, and now moving into the dorms at Santa Rosa Junior College, I'm officially a member to Santa Rosa's Bennet Valley Ward, as well as a regular attendant to Santa Rosa's Institute.
-
-I'm prepping for their debut artificial intelligence course, BAD 81, after having met DeepLearning.AI's CEO, Andrew Ng, as a result of completeing another debut AI class in Oakland, CA; CIS 96F. As well as dropping a Starbucks barista role during a ransomeware attack that froze the company's Blue Yonder payment systems at their Lake Park store, and while exiting from a non-profit organization; Poor Magazine.
