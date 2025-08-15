@@ -333,3 +333,5 @@ Using previous methods that were implented to find Andrew Ng, he locates an empl
 There, he meets Oliver Johnston, who offers him a temporary contract from Adecco to work for Niantic.
 
 Months later, revisiting Pam at Sandbox VR’s San Francisco location to talk more about San Mateo, Pam was let go from the company.
+
+

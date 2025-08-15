@@ -6,20 +6,12 @@
 
 [Address] 1950 Armory Drive, Santa Rosa CA, 95401
 
-[Contact] 510 328-6906
-
-[LDS Wards] (2009-2025): San Leandro 2nd, Oakland 6th, & Bennet Valley
-
-[Former Employment] Mercy Center Burlingame via Robert Half
-
-[Current Employment] SRJC Financial Aid Office? (Pending)
-
 
 [Completed AI Research]
 
     Laney College CIS-96F (Introduced to Tuan Nguyen & Andrew Ng)
     
-    Santa Rosa Junior College BAD-81 (Active)
+    Santa Rosa Junior College BAD-81
     
     
 [Former Tech Employment]
